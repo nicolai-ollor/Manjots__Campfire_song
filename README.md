@@ -16,7 +16,7 @@ When at the campfire with the Campfire Man
 Stories behind his scars remain behind bars 
 But you know you steady crying when screws loose
 Dangerous and Scary he ran the world back like a visionary
-Summoned like Satan you know that shit is blatant 
+Summoned like Satan you know that it is blatant 
 Had to ask God show me the way 
 Never ever led me astray
 
